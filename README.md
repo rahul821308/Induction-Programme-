@@ -20,3 +20,4 @@ My first lecture is physics lecture by prof. Jaspreet Singh Sir Teach some topic
 ##8th of August 2025
 My first lecture in Workshop. I see many types of tool ,machines, electric machines it very very interesting. I am very excited to learning machines . Sir explain all types of fitting tools. So I am very happy to visit work shop. 
 In the induction Programme my experience is good. All teachers are good. GNDEC is excellent. I share all experience to our family members and my friends. I am very lucky to taking addmission in this college. 
+Thanks for induction Programme heartiest Thankyou. 
